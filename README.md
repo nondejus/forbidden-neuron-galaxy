@@ -1,1 +1,0 @@
-# forbidden-neuron-galaxy
